@@ -1,6 +1,6 @@
-Hi 👋, I'm Sakshi Srivastava
+Hi 👋, I'm Sakshi 
 
-Email Me  **Sakshisrivastava8211@gmail.com** For Collaboration/Project or Anything Else
+Email Me  **Sakshisrivastava8211@gmail.com** For Project or Anything Else
 
 ## 🌐 Socials:
 [![LinkedIn](https://img.shields.io/badge/LinkedIn-%230077B5.svg?logo=linkedin&logoColor=white)](https://linkedin.com/in/sakshisrivastava82) [![Medium](https://img.shields.io/badge/Medium-12100E?logo=medium&logoColor=white)](https://medium.com/@edusakshi01) [![X](https://img.shields.io/badge/X-black.svg?logo=X&logoColor=white)](https://x.com/sakshisrivas14) [![email](https://img.shields.io/badge/Email-D14836?logo=gmail&logoColor=white)](mailto:sakshisrivastava8211@gmail.com) 
